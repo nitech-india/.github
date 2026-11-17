@@ -19,3 +19,7 @@
 Sector-16 (Above Utkarsh Bank)
 
 Indira Nagar, Lucknow 226 016
+
+Phone: +91 8604 5876 11
+
+Email: info.nitechindia@gmail.com
